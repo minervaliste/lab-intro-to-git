@@ -4,7 +4,4 @@
 * Liste
 
 # Hobbies:
-
-* travelling
-* cooking
-* playing board games
+Good Hobbies, but they had to goooooo
